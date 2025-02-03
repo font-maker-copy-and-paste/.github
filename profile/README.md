@@ -1,6 +1,8 @@
-Do you want to create **cool and stylish text** for social media, gaming, or personal use? Our **font maker copy and paste** tool lets you **generate fancy fonts instantly**. Just type your text, pick a style, and copy it in one click!
-
 [![font maker copy and paste](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFPDhRwta1WDZ755-sUTnLu2NXl5oi_aDatNsM1PwcCQZHsvYzKxdH0X3K_Zozaka1osvZ2v5NC1CCtTSJKODzOralgGXBIoPjIkh3NSFAWU7zulucsteS144Q-ZbEb4FQRdMr2SrGz6VOy3HEl2yyS6m5xjjowb-TmBQpZYbS_PPaK7x7ucNzb2GZvCFr/w640-h476-rw/Cool%20Text%20Maker.webp)](https://www.cooltextmaker.com/)
+
+---
+
+Do you want to create **cool and stylish text** for social media, gaming, or personal use? Our **font maker copy and paste** tool lets you **generate fancy fonts instantly**. Just type your text, pick a style, and copy it in one click!
 
 ---
 
